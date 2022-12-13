@@ -8,3 +8,4 @@ Ned Stark lives happily ever after and none of his children or wife die tragic d
 Joffrey Baratheon was the one to do Ned in, but his story was only about to
 begin, and let me assure you he will **_DEFINITELY NOT DIE!_**
 
+Joffrey is annoying and bad things happened to him. 
